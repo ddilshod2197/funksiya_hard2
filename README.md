@@ -1,0 +1,1 @@
+# funksiya_hard2
